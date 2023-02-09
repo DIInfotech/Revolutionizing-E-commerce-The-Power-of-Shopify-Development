@@ -1,1 +1,1 @@
-# Revolutionizing-E-commerce-The-Power-of-Shopify-Development
+Revolutionizing E-commerce: The Power of Shopify Development
